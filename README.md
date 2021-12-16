@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Srz
+- 👋 Hi, I’m @Snrz
 - 👀 I’m interested in cheddaaaa💵
 - 🌱 I’m currently learning how to maintain side chicks
 - 💞️ I’m looking to collaborate on Snrz. Send more creative ideas!
